@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @charlesp333
-- 👀 I’m interested in Video Games, Soccer, Christianity, 
-- 🌱 I’m currently learning HTML, currently going into junior year in college 
 - 💞️ I’m looking to collaborate on anything 
 - 📫 How to reach me through email at s784251@sbuniv.edu
 
